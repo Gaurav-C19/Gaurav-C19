@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on Anywhere
 - 📫 How to reach me justgaurav200519@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ...
+- ⚡ Student of INDIAN INSTITUTE OF INFORMATION TECHNOLOGY NAGPUR
+
 
 <!---
 Gaurav-C19/Gaurav-C19 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
